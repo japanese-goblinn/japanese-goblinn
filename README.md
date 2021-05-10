@@ -4,10 +4,10 @@ I’m developer and kind of designer. Love to learn new stuff in programming and
 
 Links to find me in another services:
 
-* [✈️ Telegram](http://t.me/japanese_goblinn)
+* [🐦 Twitter](https://twitter.com/kgorbachyonok)
 
 * [🤖 Reddit](https://www.reddit.com/user/japanese-goblinn)
 
-* [👨🏻‍💻 LinkedIn](https://www.linkedin.com/in/kirill-gorbachyonok-34521218a)
+* [✈️ Telegram](http://t.me/japanese_goblinn)
 
-* [🐦 Twitter](https://twitter.com/kgorbachyonok)
+* [👨🏻‍💻 LinkedIn](https://www.linkedin.com/in/kirill-gorbachyonok-34521218a)
